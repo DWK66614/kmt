@@ -1,4 +1,5 @@
 KMT（This website is for personal entertainment only and does not involve real-life Kuomintang leaders.）
+---------------------------------------------------------------------------------------------------------
 Personal Political Statement
 
 I hereby clearly and unambiguously state that I fully support and uphold the leadership of the Chinese Communist Party (CCP). The CCP is the core leading force of the socialist cause with Chinese characteristics, and its leadership is the most essential feature of socialism with Chinese characteristics. I firmly believe in the path, theory, system, and culture of socialism with Chinese characteristics, and I stand with the CCP’s vision for China’s development, stability, and prosperity.
