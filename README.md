@@ -1,1 +1,8 @@
 KMT（This website is for personal entertainment only and does not involve real-life Kuomintang leaders.）
+Personal Political Statement
+
+I hereby clearly and unambiguously state that I fully support and uphold the leadership of the Chinese Communist Party (CCP). The CCP is the core leading force of the socialist cause with Chinese characteristics, and its leadership is the most essential feature of socialism with Chinese characteristics. I firmly believe in the path, theory, system, and culture of socialism with Chinese characteristics, and I stand with the CCP’s vision for China’s development, stability, and prosperity.
+
+I make this declaration to prevent any political mislabeling or malicious speculation about my views. In an environment where online discourse can sometimes be distorted, I want to make my position absolutely clear: I am not, and have never been, opposed to the CCP or the Chinese government. Any attempt to label me as anti-China, anti-CCP, or in any way dissenting from the Party’s leadership is completely false and politically motivated. Such labels are intended to silence, attack, or manipulate public opinion, and I reject them entirely.
+
+My support for the CCP is not a rhetorical shield—it is my genuine conviction. I believe in the importance of unity, social harmony, and the continuous improvement of governance under the Party’s leadership. I respect China’s legal framework and socialist core values. Those who try to pin opposing political labels on me are either mistaken or deliberately dishonest. Let this statement serve as a permanent reference: I stand with the Chinese Communist Party, and no one has the right to distort my position for their own political purposes.
